@@ -1,2 +1,2 @@
 # Mikavoid
-Dev de mine
+Desenvolvedora de Minecraft e sonhadora
